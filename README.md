@@ -10,3 +10,6 @@ Sejauh ini kegiatan INTRIVIA berkesan baik menurut saya. Penyampaian materi yang
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Menurut saya Cluster 7 isinya seru-seru. Kakak Fasilnya juga asik-asik, memberi vibes Ronaldo ke semua anggota clusternya, sejauh ini aman-aman saja dan saya enjoy berada di cluster ini.
+
+## Harapan kuliah
+Dapat IPK cantik.
